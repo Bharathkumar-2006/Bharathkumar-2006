@@ -5,9 +5,9 @@
 
 - 🌱 I’m currently learning **Ethical hacking**
 
-- 💬 Ask me about **Cybersecurity,Networking ,Linux and Ethical hacking..**
+- 💬 Ask me about **Cybersecurity,Networking,Linux,Ethical hacking and Computer hardware**
 
-- 📫 How to reach me **bharathkumamr50033@gmail.com**
+- 📫 How to reach me **bharathkumar50033@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
